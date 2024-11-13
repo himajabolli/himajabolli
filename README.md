@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate with keerthana
 - 📫 How to reach me ...
-- 😄 Pronouns: himaja
+- 😄 Pronouns: sweety
 - ⚡ Fun fact: ...
 
 <!---
